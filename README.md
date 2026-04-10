@@ -1,14 +1,14 @@
-$${\color{#90AFC2}✧}$$
+$${\color{#FDDFFF}✧}$$
 
-$${\color{#CCD9E2} ALWAYS 　\color{B2C7D4} int \color{#98B4C5}　\color {#7FA1B7} with 　\color{#658EA8}care!!}$$
+$${\color{#FFFFFF} ALWAYS 　\color{FFF6FF} int \color{#FEEDFF}　\color {#FEE5FF} with 　\color{#FDDCFF}care!!}$$
 
 
 
-$${\color{#658EA8} W2I　
-\color{#7FA1B7}to 　
-\color{#98B4C5}get 　
-\color{#B2C7D4}my 　
-\color{#CCD9E2}attention}$$
+$${\color{#FCCAFF} W2I　
+\color{#FDD3FF}to 　
+\color{#FDDCFF}get 　
+\color{FEE5FF}my 　
+\color{#FEEDFF}attention}$$
 
 
 
@@ -37,22 +37,22 @@ $${\color{#658EA8} W2I　
  
 $${\color{#CCD9E2}please 
 　
-\color {#B2C7D4}do
+\color {#FFFFFF}do
 　
- \color{#98B4C5}not 
+ \color{#FFF6FF}not 
 　
-\color{##7FA1B7}copy
+\color{#FEEDFF}copy
 　
- \color{#7FA1B7}my 
+ \color{#FEE5FF}my 
 　
-\color{#658EA8}skins!}$$
+\color{#FDDCFF}skins!}$$
 
-$${\color{#658EA8}socials 
+$${\color{#FCCAFF}socials 
 　
-\color{#7FA1B7}are 
+\color{#FDD3FF}are 
 　
-\color{#98B4C5}in 
+\color{#FDDCFF}in 
 　
-\color{#B2C7D4}strawpage ˎˊ˗}$$
+\color{FEE5FF}strawpage ˎˊ˗}$$
 
-$${\color{#90AFC2}✧}$$
+$${\color{#FDDFFF}✧}$$
