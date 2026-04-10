@@ -15,7 +15,7 @@ $${\color{#658EA8} W2I　
 　　　　　　　　　　　　　　　　　
 　　　　　　　　
 　
-　 ![](https://komarev.com/ghpvc/?username=ztickbugz&label=⋆˚࿔)
+　 ![](https://komarev.com/ghpvc/?username=ztickbugz&label=⋆˚࿔&color=ff69b4)
 
 　
 　　　　　　　　
