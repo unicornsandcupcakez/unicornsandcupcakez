@@ -1,16 +1,58 @@
-## Hi there 👋
+$${\color{#90AFC2}✧}$$
 
-<!--
-**stickbugz/stickbugz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+$${\color{#CCD9E2} ALWAYS 　\color{B2C7D4} int \color{#98B4C5}　\color {#7FA1B7} with 　\color{#658EA8}care!!}$$
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+$${\color{#658EA8} W2I　
+\color{#7FA1B7}to 　
+\color{#98B4C5}get 　
+\color{#B2C7D4}my 　
+\color{#CCD9E2}attention}$$
+
+
+
+　　　　　　　　　　　　　　　　　
+　　　　　　　　
+　
+　 ![](https://komarev.com/ghpvc/?username=ztickbugz&label=frostylings)
+
+　
+　　　　　　　　
+　
+　
+　
+　
+　
+　
+　
+　
+　
+　
+　
+　
+　
+　[ata](https://frostyy.atabook.org/) 　 ⏖
+　 [straw](https://frosty5257.straw.page)
+ 
+$${\color{#CCD9E2}please 
+　
+\color {#B2C7D4}do
+　
+ \color{#98B4C5}not 
+　
+\color{##7FA1B7}copy
+　
+ \color{#7FA1B7}my 
+　
+\color{#658EA8}skins!}$$
+
+$${\color{#658EA8}socials 
+　
+\color{#7FA1B7}are 
+　
+\color{#98B4C5}in 
+　
+\color{#B2C7D4}strawpage ˎˊ˗}$$
+
+$${\color{#90AFC2}✧}$$
